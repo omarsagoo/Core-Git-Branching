@@ -25,6 +25,8 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Max met the Unicorn King who granted him magic powers to use to fight the good. The Unicorn King needed a new soldier, and while he was looking a young boy fell into his lap. His plan for world domination is one step ever closer.
+
+Mike, the guardian Koala, was watching from the distance. Dissapointed that his plan to stop the unicorn king has been made more difficult. He dreams of his epic fight with Max, the Unicorn King's new champion.  
 The end.
 
 ## Cast
