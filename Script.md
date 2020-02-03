@@ -3,7 +3,7 @@
 ## Synopsis
 
 A young boiy discovers a hidden gate behind the zoo.
-Behind it, he finds a magical world of unicorns living in perfect piece and harmony where he discovers the meaning of imagination.
+Behind it, he finds a magical world of unicorns living in perfect peace and harmony where he discovers the meaning of imagination.
 
 ## Plot
 
@@ -27,7 +27,7 @@ The end.
 
 ## Cast
 
-* Young Boy: Eliel
+* Young Boy: Max
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Friendly Koala: Mike
