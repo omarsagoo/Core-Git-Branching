@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Max met the Unicorn King who granted him magic powers.
+Max met the Unicorn King who granted him magic powers to use to fight the good. The Unicorn King needed a new soldier, and while he was looking a young boy fell into his lap. His plan for world domination is one step ever closer.
 The end.
 
 ## Cast
